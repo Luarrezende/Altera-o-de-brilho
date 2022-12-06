@@ -1,0 +1,1 @@
+# Altera-o-de-brilho
